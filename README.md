@@ -1,0 +1,1 @@
+# Ujian_Sismul_CharlesParluhutan_50421306_4IA22
